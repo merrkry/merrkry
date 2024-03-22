@@ -1,1 +1,1 @@
-[个人博客](https://merrkry.github.io)
+[个人博客](https://blog.merrkry.com)
