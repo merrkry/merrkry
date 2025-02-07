@@ -1,1 +1,1 @@
-Don't even know how to code.
+A beginner at everything. 
